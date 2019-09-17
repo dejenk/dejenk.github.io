@@ -1,3 +1,15 @@
+---
+layout: post
+title: Asal Pilih Obat untuk Mata Ikan Bisa Berbahaya?
+---
+
+Ketika mengalami mata ikan, siapapun tentu akan merasa tidak nyaman dan sakit, terutama jika benjolannya tumbuh pada telapak kaki. Meski bukan penyakit berbahaya, tetapi mata ikan harus diobati dengan tepat agar tidak mengganggu aktivitas sehari-hari. Lalu, obat untuk mata ikan apa yang bisa digunakan?
+
+Ada beberapa jenis obat untuk mata ikan yang tersedia dalam berbagai bentuk. Mulai dari krim, cair, ataupun plester. Berikut ini 3 jenis obat untuk mata ikan:
+
+Keratolytic Agents
+Obat jenis ini merupakan zat yang bisa melarutkan protein atau keratin yang terkandung dalam mata ikan dan kulit mati di sekitarnya. Obat ini bekerja dengan cara membuat lapisan kulit melunak dan mengelupas. Beberapa obat yang termasuk dalam jenis keratolytic agents adalah:
+Asam salisilat topikal. Obat ini bisa melawan bakteri dan fungi. Asam salisilat topikal akan membantu melembutkan lapisan mata ikan hingga dapat dengan mudah dihilangkan. Ada berbagai bentuk asam salisilat topikal, yaitu berbentuk gel, cair, patch, dan foam. Sebelum menggunakan obat jenis ini, sebaiknya lindungi kulit di sekitar mata ikan dengan petrolatum yang melembapkan. Cara penggunaan asam salisilat topikal yang berbentuk gel dan cair cukup mudah, yaitu dengan mengoleskannya langsung pada mata ikan. Sementara itu, untuk asam salisilat yang berbentuk patch biasanya ditempelkan semalaman. Gunakan obat ini sesuai dengan petunjuk penggunaan yang tertera pada label kemasannya.
 Amonium laktat. Obat ini dapat mengikis bagian kulit di lapisan kulit mati, sehingga bisa menipiskan kulit yang menebal. Penebalan kulit yang diakibatkan mata ikan akan dikikis dengan amonium, yang juga sekaligus melembutkan kulit kering dan bersisik. Amonium laktat yang biasa digunakan untuk mata ikan adalah amonium laktat 12 persen berbentuk krim atau salep.
 
 Urea. Urea topikal yang digunakan untuk mengatasi mata ikan ditemukan dalam Aquadrate, Calmurid, Carmol, atau Nutraplus dalam bentuk krim. Urea dapat mengatasi kulit kering dan iktiosis sekaligus sebagai pelembap. Iktiosis adalah gangguan pembentukan keratin pada kulit, sehingga kulit jadi kasar, bersisik, dan tebal, seperti yang ditemukan pada mata ikan.
